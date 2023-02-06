@@ -1,6 +1,6 @@
 ### Olá, Bem - Vindo (a) ao meu Perfil  ✨
 
-•💻Atualmente sou Estagiária de Web Designer e Voluntária em  Business to Consumer na AIESEC no Brasil!
+•💻Atualmente sou Web Designer e Voluntária em  Business to Consumer na AIESEC no Brasil!
 
 •🎓Sou estudante de Marketing - UNIMAR
 
