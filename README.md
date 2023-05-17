@@ -2,7 +2,7 @@
 
 •💻Atualmente sou Estagiaria de Web Designer e Voluntária em  Business to Consumer na AIESEC no Brasil!
 
-•🎓Sou estudante de Marketing - UNIMAR
+•🎓Formada em Marketing - UNIMAR
 
 •💾Aqui você pode encontrar alguns Projetos Lógicos do meu Curso de Banco de Dados e SQL!
 
