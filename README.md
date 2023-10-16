@@ -4,7 +4,7 @@
 
 •🎓Formada em Marketing - UNIMAR
 
-•💾Aqui você pode encontrar alguns Projetos Lógicos do meu Curso de Banco de Dados e SQL!
+•💾Aqui você pode encontrar alguns Projetos Lógicos de Banco de Dados e SQL
 
 <details>
   <summary>
